@@ -4,4 +4,4 @@
 # https://t.me/shotaABC
 # 如果不知道有什么资源的话，可以到这里查看
 # https://wazt5idd.one
-https://www.wazt5idd.one
+# https://www.wazt5idd.one
